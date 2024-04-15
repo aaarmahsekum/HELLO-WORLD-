@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aaarmahsekum
-- 👀 I’m interested in Working with Data,Cybersecurity and AI
+- 👀 I’m interested in Working with Data especially and interest in Cybersecurity and AI
 - 🌱I'm studying Computer Science (Undergrad)
 
 - 📫 How to reach me @angelaayaarmahsekum@gmail.com 
