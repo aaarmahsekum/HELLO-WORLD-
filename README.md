@@ -5,6 +5,7 @@
 - 📫 How to reach me @angelaayaarmahsekum@gmail.com and Angela Aya Armah-Sekum on LinkedIn.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact:I'm really curious about the technological world and its evolution (I'm everywhere..sike!)
+
 -💕 Join me as I start my C++ and HTML Journey this year!!! yipee!
 
 
